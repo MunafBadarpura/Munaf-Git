@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **munafbadarpura11@gmail.com**
 
-- ⚡ Portfolio https://munafbadarpura.github.io/munafbadarpura/](https://munafbadarpura.github.io/munafbadarpura/](https://munafbadarpura.github.io/MunafBadarpuraPortfolio/))
+- ⚡ Portfolio https://munafbadarpura.github.io/MunafBadarpuraPortfolio/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
